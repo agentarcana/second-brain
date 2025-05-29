@@ -1,5 +1,22 @@
 A running list of ideas for software that I want to see exist in the world.
 
+### Personal app
+
+Like a knowledge base for your life. Documentation for things that work and don't work, that make you feel good and you want to do more of or things that don't.
+
+Like a personal user manual. 
+
+Health:
+How much sleep do you need? Which foods make you bloated? What kind of content makes your mental health worse or better?
+
+Values:
+Which values drive your life and act as the compass? Which behaviours line up with that? which values attract you, which repel you. what kind of person do you want to be?
+
+What kind of gifts do you like? what are your love languages? personality types? map out the woowoo! 
+
+Connections:
+like a CRM for your friends. log their details, and the stuff you want to remember about them. log their birthday and cool memories.
+
 ### Feature storefront / landing page
 
 Like Amazon store pages - its a landing page for aoftware features where PM crafts their vision for the feature.
