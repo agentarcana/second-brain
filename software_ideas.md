@@ -1,5 +1,18 @@
 A running list of ideas for software that I want to see exist in the world.
 
+### router
+
+AI that is responsible for routing your question or request to the correct place. its the switchboard operator for the company.
+
+it has context of who you are, what you're interested in, and perhaps your knowledge/expertise?
+
+when you ask something, it first needs to fully understand what you mean. then, it can try to answer the question from its knowledge base or it takes your request to a team or person.
+
+when it gets to that team/person, they confirm if this is for them and then they action it. if it isn't for them, they reject it and the AI tries another route. it can also send to multiple people/places at once.
+
+
+
+
 ### Personal app
 
 Like a knowledge base for your life. Documentation for things that work and don't work, that make you feel good and you want to do more of or things that don't.
