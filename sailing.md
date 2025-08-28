@@ -7,7 +7,14 @@ RYA Essential Seamanship and Navigation
 
 ### Resources
 
+1. https://find.rya.org.uk/new/?lat=52.132633&lng=5.291265999999999&useBrowserLocation=false&locationSearch=Netherlands&courses=3333
+1. https://www.rya.org.uk/training/sail-cruising
+1. Books: https://www.rya.org.uk/shop
 
+Recommended books:
+
+* RYA Competent Crew Skills: https://amzn.eu/d/bLiElrk
+* RYA Yacht sailing techniques: https://amzn.eu/d/bHx92AX
 
 ## Sailing schools in NL
 
