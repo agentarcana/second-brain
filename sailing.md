@@ -36,6 +36,10 @@ RYA Online Essential Seamanship and Navigation:
 * €225
 * https://drivenbynature.nl/course/rya-essential-navigation-seamanship-online-course/
 
-holiday
+## Sailing in UK
+
+https://commodore-yachting.com/sailing-courses/rya-practical-courses/rya-competent-crew/
+
+## Sailing holiday
 
 https://greece.wildwind.nl/summer-sailing-holiday-prices
