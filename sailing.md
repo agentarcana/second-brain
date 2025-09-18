@@ -38,8 +38,17 @@ RYA Online Essential Seamanship and Navigation:
 
 ## Sailing in UK
 
+Competent Crew
 https://commodore-yachting.com/sailing-courses/rya-practical-courses/rya-competent-crew/
+- £749
+- 8 to 12 October 2025
 
-## Sailing holiday
+Milebuilder weekend
+
+https://commodore-yachting.com/course/mile-builder-weekend-03-10-25/
+- £349
+- 3 to 5 October 202
+
+## Sailing holiday and training
 
 https://greece.wildwind.nl/summer-sailing-holiday-prices
