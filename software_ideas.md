@@ -1,5 +1,37 @@
 A running list of ideas for software that I want to see exist in the world.
 
+### Event space directory
+
+A directory for all event spaces in NL. 
+
+It shows space and location details so that space owners can market their space and those looking for spaces can easily find the perfect space for them.
+
+Maybe like airbnb for event spaces?
+
+Someone could rent out their living room...
+
+Space details:
+
+* Capacity
+* Location
+* Tags for vibe/common use/decor/theme
+* Technical details for space like electricity and available equipment
+* Pricing and fees
+* Availability?
+* House rules
+* Laws and licensing, regulation details
+* Location type (personal residence, event space)
+* Bathrooms and facilities
+* Photos
+* Food prep and catering availabilities
+* Staff?
+* Space owner: restaurant, person, professional
+* Space use: photography studio, workshops, temple, dance, yoga, ceremony space, weddings
+
+Platform facilitates payment. Also ability to "apply" or express interest in certain dates and first have a convo to confirm.
+
+Link up with Hipsy, then you can see the events that have taken place at that venue before.
+
 ### router
 
 AI that is responsible for routing your question or request to the correct place. its the switchboard operator for the company.
