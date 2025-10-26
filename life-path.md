@@ -25,6 +25,20 @@ Inspo:
 - Mastery by Robert Greene
 - Podcast episode: https://podcasts.apple.com/nl/podcast/the-prof-g-pod-with-scott-galloway/id1498802610?i=1000715570611
 
+#### youtuber / content creator
+
+has autonomy and creativity. no feedback on impact in the beginning. 
+
+then, once you do get feedback, its from viewers. should that feedback change the content you make? problem solving at scale.. requires a deep understanding of the problem. and the reality that the solution cannot work for everyone.
+
+the money/rewards are also tied to feedback. and there is no nuance. the data is incomplete. 
+
+risky to problem solve on incomplete data. 
+
+risky to measure success and satisfaction on scaled feedback. will have to be very clear about who's feedback matters and who's doesn't.
+
+or who's feedback you're looking for. who's problem you're solving for. or what problem you're solving for.
+
 ### career review
 
 ### music teacher
