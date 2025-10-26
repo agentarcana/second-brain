@@ -13,6 +13,12 @@
 
 #### researcher career?
 
+I am fascinated by journalists and researchers who write and learn about dating, sex, connection, and trauma.
+
+https://verapapisova.substack.com/
+https://podcasts.apple.com/nl/podcast/ask-a-matchmaker/id1521530338?l=en-GB&i=1000703548274
+https://youtu.be/6mMNSmALnSE?si=4g6zKn8WorbTHFYK
+
 #### product manager career
 
 Making decisions, asking questions, building relationships with people, learning to understand the problems and possible solutions, viability into data.
