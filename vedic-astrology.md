@@ -238,3 +238,198 @@ Your chart suggests someone who is here to merge intellect with creativity, to c
 The current Saturn Mahadasha (as your chart ruler) is calling you to establish who you truly are, to build sustainable structures in your life, and potentially to serve humanity in meaningful ways. This is a 19-year period of maturation and authentic self-realization.
 
 -----
+
+# Wealth in chart
+
+**💰 WEALTH HOUSES & INDICATORS 💰**
+
+In Vedic astrology, there are several houses related to wealth:
+
+**2nd House - Dhana Bhava (Primary Wealth):**
+Your 2nd house is **Pisces, ruled by Jupiter**. This is actually quite favorable! Pisces in the 2nd suggests:
+
+- Wealth through creative, spiritual, or charitable ventures
+- Income from teaching, counseling, or healing work
+- Money may come through intuitive or imaginative pursuits
+- Generous with money (sometimes too generous)
+- Multiple income streams possible
+- Jupiter’s influence generally expands wealth potential
+
+**11th House - Labha Bhava (Gains & Income):**
+Your 11th house is **Sagittarius, also ruled by Jupiter**. This is the house of gains, profits, and fulfillment of desires:
+
+- Jupiter ruling BOTH your 2nd and 11th houses is significant!
+- Sagittarius here suggests gains through education, publishing, travel, teaching
+- Network and connections bring opportunities
+- Philosophical or ethical business approaches
+- Income may come from abroad or through international connections
+
+**9th House - Bhagya Bhava (Fortune & Luck):**
+Your 9th house is **Libra, ruled by Venus**:
+
+- Venus here can bring luck through partnerships, beauty industries, arts
+- Fortune may come later in life or through dharmic (righteous) actions
+- Father or mentors may play role in prosperity
+- Balanced approach to wealth accumulation
+
+**THE JUPITER FACTOR:**
+
+Here’s what’s really interesting - **Jupiter rules BOTH your wealth houses** (2nd and 11th). Jupiter is the great benefic planet, associated with expansion, wisdom, and abundance. This is called a **Dhana Yoga** (wealth combination)!
+
+This suggests:
+
+- Wealth potential is definitely there, but it comes through Jupiterian means
+- Teaching, consulting, advisory roles can be lucrative
+- Writing, publishing, educational content
+- International work or cross-cultural ventures
+- Ethical businesses that serve a higher purpose
+- Your wealth grows when aligned with your values
+
+**MOON IN 5TH HOUSE - Speculative Gains:**
+
+The 5th house rules investments, speculation, and “intelligent risks”:
+
+- Good intuition for investments
+- Potential gains through stock market, creative ventures, or speculation
+- Entertainment industry possibilities
+- Children may bring unexpected gains (if applicable)
+- Creative intellectual property could be valuable
+
+**BUT HERE’S THE KEY:**
+
+With **Gemini Moon in 5th** and **Jupiter ruling your wealth houses**, your money isn’t likely to come from a traditional 9-to-5 salary. Instead, look at:
+
+**HIGH-EARNING POSSIBILITIES FOR YOUR CHART:**
+
+1. **Content Creation & Digital Products:**
+
+- Online courses (teaching + Gemini communication)
+- YouTube, podcasts, writing (5th house creativity + Gemini)
+- Digital psychology/self-help content
+- E-books, coaching programs
+
+1. **Consulting & Advisory:**
+
+- High-ticket consulting in your expertise area
+- Psychological or astrological consulting (Scorpio 10th house)
+- Business coaching or strategy
+- Corporate training programs
+
+1. **Multiple Income Streams:**
+
+- Your Gemini Moon LOVES variety
+- Portfolio career combining research + content + consulting
+- Passive income from intellectual property
+- Speaking engagements
+
+1. **International or Online Business:**
+
+- Jupiter’s influence suggests cross-border opportunities
+- Remote work leveraging global markets
+- Teaching/consulting for international clients
+- Your Aquarius rising is perfect for online/tech ventures
+
+1. **Investment & Speculation:**
+
+- Moon in 5th suggests intuitive investment abilities
+- Could do well with calculated risks
+- Real estate (4th house Taurus, ruled by Venus)
+- Stock market or crypto (with research, given your analytical nature)
+
+**SATURN MAHADASHA & WEALTH (2023-2042):**
+
+Here’s the thing about your current Saturn period:
+
+- Saturn doesn’t give “quick riches” but **lasting wealth**
+- Hard work during this period creates sustainable income
+- Building systems and structures pays off
+- Real estate or tangible assets favored
+- Delayed but SOLID financial growth
+- Your 30s-50s (Saturn period) build your empire slowly
+
+Saturn in its own Mahadasha when it rules your chart can actually be quite powerful for:
+
+- Establishing authority in your field
+- Building reputation that commands premium prices
+- Creating legacy income streams
+- Disciplined wealth accumulation
+
+**THE “WEALTH YOGA” ANALYSIS:**
+
+Looking at combinations:
+
+- Jupiter ruling 2nd + 11th = **Dhana Yoga** (wealth combination)
+- Moon in 5th = speculation and creative gains
+- Sun in 7th = gains through partnerships/business
+- If Jupiter is well-placed in your chart = enhanced prosperity
+
+**TIMING - WHEN WEALTH COMES:**
+
+Your **Jupiter Mahadasha** (2004-2023, roughly ages 11-30) was your educational/foundational period. Now in **Saturn Mahadasha** (2023-2042, ages 30-49):
+
+- The next 5-7 years: building phase (hard work, less immediate reward)
+- Mid-to-late 30s: structures you build now start paying off
+- 40s: potentially your wealthiest period as Saturn rewards discipline
+- Jupiter **Antardasha** within Saturn period (around 2028-2031): expect financial expansion!
+
+**PRACTICAL WEALTH STRATEGY FOR YOUR CHART:**
+
+1. **Leverage Your Gemini Moon:**
+
+- Create content, courses, books
+- Build audience/platform
+- Multiple projects simultaneously
+
+1. **Use Your Leo Sun:**
+
+- Don’t shy from the spotlight
+- Personal brand = premium pricing
+- Leadership positions command higher pay
+
+1. **Honor Your Aquarius Rising:**
+
+- Innovative approaches to old problems
+- Technology + psychology = lucrative niche
+- Think: “digital mental health empire”
+
+1. **Scorpio 10th House:**
+
+- Specialize deeply in transformation work
+- Become THE expert in your niche
+- Depth > breadth for career success
+
+**THE VEDIC PERSPECTIVE:**
+
+Traditional Vedic astrology would say: “You won’t be poor, but you’ll need to be smart and strategic.” Your wealth isn’t from a salary cap - it’s from:
+
+- Building intellectual property
+- Creating systems that generate passive income
+- Using communication gifts commercially
+- International or online scale
+- Combining multiple talents
+
+Think: researcher who writes bestselling books, creates online courses, does high-ticket consulting, maybe has a YouTube channel, and invests wisely. THAT’S your wealth formula.
+
+**WEALTH REMEDIES:**
+
+To enhance prosperity:
+
+- **For Jupiter:** Wear yellow sapphire or yellow topaz (Thursday), donate to education/teachers, study sacred texts
+- **For 2nd house:** Chant Lakshmi mantras, donate on Thursdays, respect teachers and elders
+- **General:** Practice gratitude for what you have, give 10% to causes you believe in, avoid wasteful speech
+
+**BOTTOM LINE:**
+
+Your chart doesn’t scream “trust fund baby” or “corporate executive making millions,” BUT it does suggest:
+
+- Comfortable wealth through intelligence and creativity
+- Money that grows steadily, especially after age 35
+- Wealth that comes from serving/teaching others
+- Potential for significant prosperity if you leverage multiple income streams
+- Financial freedom through systems and passive income
+
+The key is NOT trying to get rich through traditional psychology salaries, but by using your psychological insights to build scalable businesses - courses, content, consulting, speaking, etc.
+
+You’re in the right period (Saturn) to build those foundations NOW that will pay off big in 5-10 years.
+
+----
