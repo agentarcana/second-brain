@@ -52,3 +52,9 @@ https://commodore-yachting.com/course/mile-builder-weekend-03-10-25/
 ## Sailing holiday and training
 
 https://greece.wildwind.nl/summer-sailing-holiday-prices
+
+## Day Skipper
+
+### Gibraltar
+
+https://www.sailwiz.com/en/long-courses/course-rya-competent-crew-or-rya-day-skipper-practical-in-gibraltar/a/2202
