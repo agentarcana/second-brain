@@ -1,5 +1,32 @@
 A running list of ideas for software that I want to see exist in the world.
 
+### Map with events all over a city
+
+I want to be able to see all events happening in a city at any given moment.
+
+I want to view this on a map for easy reference.
+
+Filter by: 
+
+date/time of event
+location
+event type
+venue type
+cost of event
+if tickets needed, are tickets still available
+vibe check / targeted demographic (especially kids/no kids)
+link to event website or insta
+
+ideal would be a "trailer" or look into the event to know what to expect, sort of what it looks like on snapchat. maybe some kind of indicator of crowding?
+
+some kind of distinction of whether this is a limited event or ongoing. 
+
+i want to know if the event is suitable for solo or if its better to go with friends. 
+
+success criteria: i should be able to see all live music happening in a city right now or today, where its possible for me to go
+
+i should also be able to check out what's happening next weekend and see when and where to buy a ticket if needed.
+
 ### Event space directory
 
 A directory for all event spaces in NL. 
